@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **nayannepalatclg9@gmail.com**
 
-- ⚡ Fun fact **😒**
+- ⚡ Fun fact peace**✌**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
